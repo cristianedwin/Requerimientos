@@ -1,0 +1,1 @@
+https://miro.com/welcomeonboard/MTJ4UlJKWkE2TmVtV2paTjJxOUpSb1hualdwdnpkVTV5aUtZNHUzZUsxeTJYM1hObU9FSG95UVRkSElPNzAwYXwzNDU4NzY0NTE5NTQyNzg1OTQ3?invite_link_id=514053443420
